@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Folkcurls
-- 👀 I’m interested in music, dnd/rpg stuff, writing, IT
+- 👀 I’m interested in music, dnd/rpg stuff, writing, IT, learning about a lot of things
 - 📫 How to reach me: email folkcurls@gmail.com, telegram @folkcurls, vk @princeskept_theview
 
 <!---
