@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Folkcurls
 - 👀 I’m interested in music, dnd/rpg stuff, writing, IT, learning about a lot of things
-- 📫 How to reach me: email folkcurls@gmail.com, telegram @folkcurls, vk @folkcurls
+- 📫 How to reach me: email folkcurls@gmail.com, telegram @princeskept
 
 <!---
 Folkcurls/Folkcurls is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
